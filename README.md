@@ -9,7 +9,7 @@ About me
 🎨 Enjoy animation and creating visually engaging experiences.
 🔄 Also venture into the simulation of dynamic systems to better understand their behavior.
 
-## Contacto
+## Contact
 I'd love to connect with you! You can reach me at luis.larosa.c@uni.pe
 
 Thanks for visiting my profile!
